@@ -30,6 +30,6 @@ The goal is to uncover how stress influences these habits and to provide meaning
 
 ---
 
-Stay tuned for more updates as the project progresses! 😊
+Thank you for your time! 😊
 
 
